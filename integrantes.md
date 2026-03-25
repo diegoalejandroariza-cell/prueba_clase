@@ -1,3 +1,3 @@
 Nombre: Diego Ariza
 Equipo: hola
-Dato curiosos: fjrfjrjfbrjf
+Dato curiosos: es mejor cristiano q messi
